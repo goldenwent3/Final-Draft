@@ -206,4 +206,4 @@ Final Draft is available as a full free version with all features and updates in
 Unlock your writing potential today by downloading Final Draft. Get started on your script with the best in the industry!
 
 ---
-**Last updated:** 2026-10-04 18:26:49 UTC
+**Last updated:** 2026-10-04 22:04:37 UTC
